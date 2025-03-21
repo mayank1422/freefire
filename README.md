@@ -1,2 +1,2 @@
 # freefire
-freefire id sale and by
+freefire id sale and buy
